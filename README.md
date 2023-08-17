@@ -6,7 +6,7 @@
 	fitoterapeuta e estudante de nutricao, tenho dois filhos e gosto de
 	criancas me divirto bastante com cada descoberta delas, gosto de
 	plantas animais domestico e de tudo q se refere a natureza;
- ### 3 paragrafo gosto de criar desafios pra minha vida me superando a cada dia.
+  3 paragrafo gosto de criar desafios pra minha vida me superando a cada dia.
 	Meu pai feirante em Salvador Bahia, ajudou no sustento dos filhos
 	com um pouco de tudo q se tinha na feira pra vender.
 	Aprendir desde cedo q o melhor q ele poderia dar aos filhos era
